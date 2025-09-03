@@ -80,6 +80,15 @@ Use it rightly — or it will use you.**
 
 ---
 
-## 🛠️ Run Instructions
+⚠️ Update
 
-Coming soon — or customize for your environment.
+My hardware is ass — training has been a pain.
+
+But even so, I could’ve done it.
+Instead, I’ve decided to aim higher.
+
+This was never meant to be small.
+What comes next won’t take days.
+It will take months — and when it arrives,
+it will shock the world.
+
