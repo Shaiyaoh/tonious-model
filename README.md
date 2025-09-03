@@ -82,7 +82,7 @@ Use it rightly — or it will use you.**
 
 ⚠️ Update
 
-My hardware is ass — training has been a pain.
+My hardware is ass — training has been a pain. New laptop on the way.
 
 But even so, I could’ve done it.
 Instead, I’ve decided to aim higher.
